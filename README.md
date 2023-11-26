@@ -9,9 +9,7 @@ Even though I have added a lot to myself since the first time I started software
 
 My current greatest passion is to research, learn and apply.
 
-I would like to be able to work together on projects. So that you can contact me about my projects etc.
-
-My e-mail address is in my profile.
+I would like to be able to work together on projects. So that you can contact me about my projects etc my e-mail address is in my profile.
 
 Thank you for visiting my profile.
 
